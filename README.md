@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... any common goal projects
 - 📫 How to reach me ... suman.groups@gmail.com
 - 😄 Pronouns: ...Mr.
-- ⚡ Fun fact: ... 198X born kids have seen lot of changes in the embedded technology ranging from gaming consoles, automated driver assistance system vehicles , cloud computing from multiple sectors.
+- ⚡ Fun fact: ... 198X born kids have seen lot of changes in the INFORMATION TECHNOLOGY ranging from gaming consoles, automated driver assistance system vehicles , cloud computing from multiple sectors.
 
 <!---
 suman-komarla-adinarayana-groups/suman-komarla-adinarayana-groups is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
