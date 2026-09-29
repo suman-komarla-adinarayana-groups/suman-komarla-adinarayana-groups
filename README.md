@@ -15,3 +15,6 @@ My Linkedin:-
 
 My Resume:-
 https://github.com/suman-komarla-adinarayana-groups/suman-komarla-adinarayana-groups/tree/ddea7b8bfd67d6eff162dbee237c90d6d5642c89/SumanKAGroups_MyIndiaInternationalWorkResumeInfo
+
+My MBA Thesis:-
+https://www.youtube.com/watch?v=cNdYsSb7qa8&t=4s
