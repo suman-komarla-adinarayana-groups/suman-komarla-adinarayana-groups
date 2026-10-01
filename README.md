@@ -5,7 +5,7 @@
 - 📫 How to reach me ... suman.groups@gmail.com
 - 😄 Pronouns: ...Mr.
 - ⚡ Fun fact: ... 198X born kids have seen lot of changes in the INFORMATION TECHNOLOGY transformation as part of "TECHNOLOGY FOR GOOD" ranging from devices for gaming, unmanned vehicles, cloud computing, virtual reality, robotics, personal assistants,  etc from multiple sectors inline with "20XX WORLD VISION" both in India and Internationally.
-
+- 🌐 Ancient Technology and New Technology: ...I grew up with folklores of advanced technology in indian vedic era and remember to have used floppy disks, black and white television, mopeds, orkut, rediffmail, yahoo mail, apple ipod, printed diaries,autograph book,post cards,metal coins,desktop computer,dial-up connection, LAN GAMES, nintendo consoles, etc and now learning AI and ML parts of data science online
 <!---
 suman-komarla-adinarayana-groups/suman-komarla-adinarayana-groups is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
