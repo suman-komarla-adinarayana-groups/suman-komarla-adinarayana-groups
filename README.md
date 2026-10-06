@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @suman-komarla-adinarayana-groups
-- 👀 I’m interested in ...  creating DIY programs,tools,devices,software,hardware for my hobby projects.
-- 🌱 I’m currently learning ... multiple programming languages , machine learning and aritificial intelligence, open source contribution
-- 💞️ I’m looking to collaborate on ... any common goal projects
+- 👀 I’m interested in ...  creating DIY programs, tools, devices, software, hardware for my hobby projects or product development or business startup.
+- 🌱 I’m currently learning ... INFORMATION TECHNOLOGY, open source contribution , multiple programming languages basics, artificial intelligence and machine learning 
+- 💞️ I’m looking to collaborate on ... any common goal projects or "PUBLIC WELFARE"
 - 📫 How to reach me ... suman.groups@gmail.com
 - 😄 Pronouns: ...Mr.
 - ⚡ Fun fact: ... 198X born kids have seen lot of changes in the INFORMATION TECHNOLOGY transformation as part of "TECHNOLOGY FOR GOOD" ranging from devices for gaming, unmanned vehicles, cloud computing, virtual reality, robotics, personal assistants,  etc from multiple sectors inline with "20XX WORLD VISION" both in India and Internationally.
@@ -16,11 +16,12 @@ My Linkedin:-
 My Resume:-
 https://github.com/suman-komarla-adinarayana-groups/suman-komarla-adinarayana-groups/tree/ddea7b8bfd67d6eff162dbee237c90d6d5642c89/SumanKAGroups_MyIndiaInternationalWorkResumeInfo
 
-My MBA Thesis:-
+My Profiles :-
+
+My MBA Thesis:- A STUDY ON THE APPLICATION OF PREDICTIVE ANALYTICAL MODEL ON MACROECONOMIC FACTORS VIS-À-VIS GLOBAL ORGANIZATIONAL GROWTH (IT INDUSTRY)
 https://www.youtube.com/watch?v=cNdYsSb7qa8&t=4s
 
 My India International University DIGITAL Certificates :-
-
 
 
 #TECHNOLOGYFORGOOD #AIFORGOOD #SUMANKOMARLAADINARAYANA #GITHUB 
