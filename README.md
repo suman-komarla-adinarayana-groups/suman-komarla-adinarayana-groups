@@ -19,6 +19,7 @@ https://github.com/suman-komarla-adinarayana-groups/suman-komarla-adinarayana-gr
 My Profiles :-
 
 My MBA Thesis:- A STUDY ON THE APPLICATION OF PREDICTIVE ANALYTICAL MODEL ON MACROECONOMIC FACTORS VIS-À-VIS GLOBAL ORGANIZATIONAL GROWTH (IT INDUSTRY)
+
 https://www.youtube.com/watch?v=cNdYsSb7qa8&t=4s
 
 My India International University DIGITAL Certificates :-
