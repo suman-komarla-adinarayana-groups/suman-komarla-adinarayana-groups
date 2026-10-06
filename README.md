@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @suman-komarla-adinarayana-groups
 - 👀 I’m interested in ...  creating DIY programs, tools, devices, software, hardware for my hobby projects or product development or business startup.
-- 🌱 I’m currently learning ... INFORMATION TECHNOLOGY, open source contribution , multiple programming languages basics, artificial intelligence and machine learning 
+- 🌱 I’m currently learning ... INFORMATION TECHNOLOGY, open source contribution (https://en.wikipedia.org/wiki/List_of_free_and_open-source_software_packages) , multiple programming languages basics, artificial intelligence and machine learning 
 - 💞️ I’m looking to collaborate on ... any common goal projects or "PUBLIC WELFARE"
 - 📫 How to reach me ... suman.groups@gmail.com
 - 😄 Pronouns: ...Mr.
