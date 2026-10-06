@@ -19,7 +19,7 @@ https://github.com/suman-komarla-adinarayana-groups/suman-komarla-adinarayana-gr
 My MBA Thesis:-
 https://www.youtube.com/watch?v=cNdYsSb7qa8&t=4s
 
-My International University DIGITAL Certificates :-
+My India International University DIGITAL Certificates :-
 
 
 
