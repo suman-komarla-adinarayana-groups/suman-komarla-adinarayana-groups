@@ -1,5 +1,5 @@
 - 👋 Hi, Namaste 🙏, Greetings 📮,  I’m "SUMAN KOMARLA ADINARAYANA" , @suman-komarla-adinarayana-groups [facebook] [Whatsapp] [Telegram] [Twitter] [https://www.kaggle.com/sumangroups] [https://huggingface.co/suman-komarla-adinarayana-groups]
-- 👀 I’m interested in ...  creating DIY programs, tools, devices, software, hardware for my hobby projects or product development or business startup.
+- 👀 I’m interested in ...  ONLINE IDENTITY project [https://en.wikipedia.org/wiki/Online_identity], creating DIY programs, tools, devices, software, hardware for my hobby projects or product development or business startup.
 - 🌱 I’m currently learning ... INFORMATION TECHNOLOGY, open source contribution (https://en.wikipedia.org/wiki/List_of_free_and_open-source_software_packages) (https://en.wikipedia.org/wiki/AUTOSAR), transportation and logistics (https://en.wikipedia.org/wiki/Open-source_car) , multiple programming languages basics, artificial intelligence and machine learning 
 - 💞️ I’m looking to collaborate on ... any common goal projects or "PUBLIC WELFARE"
 - 📫 How to reach me ... suman.groups@gmail.com
