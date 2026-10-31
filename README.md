@@ -13,7 +13,7 @@
 - 📸📻📺🎥📽️ Social Media :-
 - 👾🎮🕹️🏏Sports and Gaming:-
 - 🎭🖼️🎨🪩🎵🎤🔊📸🎥 (Hobbies):-
-- 📚 Education :-
+- 📚 🎓👨‍🎓 Education :-
 - 🏆🥇👥 Volunteering / Public Welfare / Freindly Groups / Social Welfare:-
 <!---
 suman-komarla-adinarayana-groups/suman-komarla-adinarayana-groups is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -25,13 +25,13 @@ My Linkedin:-
 My Resume:-
 https://github.com/suman-komarla-adinarayana-groups/suman-komarla-adinarayana-groups/tree/ddea7b8bfd67d6eff162dbee237c90d6d5642c89/SumanKAGroups_MyIndiaInternationalWorkResumeInfo
 
-My Education Profile 📚:-
+My Education Profile 📚 🎓👨‍🎓:-
 
 My MBA Thesis:- A STUDY ON THE APPLICATION OF PREDICTIVE ANALYTICAL MODEL ON MACROECONOMIC FACTORS VIS-À-VIS GLOBAL ORGANIZATIONAL GROWTH (IT INDUSTRY)
 
 https://www.youtube.com/watch?v=cNdYsSb7qa8&t=4s
 
-My India International University DIGITAL Certificates :-
+My India International University DIGITAL Certificates 📚 🎓👨‍🎓 :-
 
 
 #TECHNOLOGYFORGOOD #SCIENCEFORGOOD #AIFORGOOD #SUMANKOMARLAADINARAYANA #GITHUB 
