@@ -11,9 +11,10 @@
 - 🧑‍💻💻⌨️🖱️📱 (Electronics and Information Technology) :-
 - 🧑‍💼 Business :-
 - 📸📻📺🎥📽️ Social Media :-
-- 👾🎮🕹️Gaming :-
-- 
-- 
+- 👾🎮🕹️🏏Sports and Gaming:-
+- 🎭🖼️🎨🪩🎵🎤🔊📸🎥 (Hobbies):-
+- 📚 Education :-
+- 🏆🥇👥 Volunteering / Public Welfare / Freindly Groups / Social Welfare:-
 <!---
 suman-komarla-adinarayana-groups/suman-komarla-adinarayana-groups is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
@@ -24,7 +25,7 @@ My Linkedin:-
 My Resume:-
 https://github.com/suman-komarla-adinarayana-groups/suman-komarla-adinarayana-groups/tree/ddea7b8bfd67d6eff162dbee237c90d6d5642c89/SumanKAGroups_MyIndiaInternationalWorkResumeInfo
 
-My Profiles :-
+My Education Profile 📚:-
 
 My MBA Thesis:- A STUDY ON THE APPLICATION OF PREDICTIVE ANALYTICAL MODEL ON MACROECONOMIC FACTORS VIS-À-VIS GLOBAL ORGANIZATIONAL GROWTH (IT INDUSTRY)
 
