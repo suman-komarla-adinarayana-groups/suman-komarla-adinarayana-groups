@@ -17,6 +17,7 @@
 - 📚 🎓👨‍🎓 Education :-
 - 🏆🥇👥 Volunteering / Public Welfare / Freindly Groups / Social Welfare:-
 - 🗣️📖✍️Languages :-
+- 🎵🎤🔊📸🎥 📻📺📡Infotainment And Entertainment Media :-
 - OTHERS :-
 - 
 <!---
