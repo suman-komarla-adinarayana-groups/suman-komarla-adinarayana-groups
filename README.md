@@ -11,7 +11,7 @@
 - 🧑‍💻💻⌨️🖱️📱 (Electronics and Information Technology) :-
 - 🧑‍💼 Business :-
 - 👨‍💻📲 WORK:-
-- 👨‍💻📲🧑‍💼 WORK/Business (OPEN ACCESS) INFOSHARE - (Book Of Knowledge):- [Github] [Gitlab] [Kaggle] [Huggingface] [Orcid] [Youtube]
+- 👨‍💻📲🧑‍💼 WORK/Business (OPEN ACCESS) INFOSHARE - (Book Of Knowledge):- [Github] [Gitlab] [Kaggle] [Meetup] [Huggingface] [Orcid] [Youtube]
 - 📸📻📺🎥📽️ Social Media :-
 - 👾🎮🕹️🏏Sports and Gaming:-
 - 🎭🖼️🎨🪩🎵🎤🔊📸🎥 (Hobbies):-
