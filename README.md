@@ -10,7 +10,7 @@
 -  🇮🇳(INDIA,ASIA) [INDO--ASIAN Tectonic Plate] Geography and Governance:-  
 - 🧑‍💻💻⌨️🖱️📱 (Electronics and Information Technology) :-
 - 🧑‍💼 Business :-
-- 👨‍💻📲 WORK:-
+- 👨‍💻📲 WORK:- [ISO STANDARDS] [SAE] [OPEN SOURCE] [AUTOSAR] [BIS] [ISI] [IEC] [BS-V, BS-VI] [OPEN HARDWARE]
 - 👨‍💻📲🧑‍💼 WORK/Business (OPEN ACCESS) INFOSHARE - (Book Of Knowledge):- [Github] [Gitlab] [Kaggle] [Meetup] [Huggingface] [Orcid] [Youtube]
 - 📸📻📺🎥📽️ Social Media :-
 - 👾🎮🕹️🏏Sports and Gaming:-
