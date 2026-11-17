@@ -6,7 +6,7 @@
 - 😄 Pronouns: ...Mr.
 - ⚡ Fun fact: ... 198X born kids have seen lot of changes in the INFORMATION TECHNOLOGY transformation as part of "TECHNOLOGY FOR GOOD" ranging from INFORMATION TECHNOLOGY GOODS AND SERVICES, devices for gaming, self-driving vehicles, cloud computing, virtual reality, robotics, personal assistants,  etc from multiple sectors inline with "20XX WORLD VISION" both in India and Internationally.
 - 🌐 Ancient (VEDIC/PRIMITIVE/PRE-HISTORIC/FORGOTTEN?) Technology (ex:- https://archive.org/, BEFORE 19XX - or XYZ_BCE
-- 
+ 
   [DEVICE(s)/SYSTEM(s)/BOT(s)/ACCOUNT(s)/NETWORK(S)/ID(s)/WORK(S)/MACHINE(s) RESTORE|||||||:::..][RELOADING |||||||:::..])
 
   and PRESENT TECHNOLOGY (
